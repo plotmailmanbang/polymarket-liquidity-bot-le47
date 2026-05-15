@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket secure Algorithm: price-monitoring & gas-optimization, the #1 algorithm. Includes price-monitoring and gas-optimization for a
 
 
 
